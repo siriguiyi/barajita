@@ -1,1 +1,1 @@
-gay el que entro
+#gay el que entro
